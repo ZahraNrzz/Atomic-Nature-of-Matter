@@ -130,12 +130,12 @@ If you have any questions or issues with Atomic Nature of Matter, please contact
 
 ## creators :
 
-   Zahra Noruzzadeh _ 1410115355031
+   Zahra Noruzzadeh
 
-   Hannaneh Hazratian _ 14015361916
+   Hannaneh Hazratian
 
-   Parniyan Modirshahla _ 14015361942
+   Parniyan Modirshahla
 
-   Ata Hasanzadeh  _ 14015361915
+   Ata Hasanzadeh  
 
    
